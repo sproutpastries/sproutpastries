@@ -12,4 +12,3 @@
   (＞。☆)  [cardco *wip*](https://link) 🪦
     ˒˒  ♫  ੭୧  ₊ ⊹
      𓂃  **as**k 4 nicknames 🍴
-![](https://files.catbox.moe/kiznjt.gif) 
