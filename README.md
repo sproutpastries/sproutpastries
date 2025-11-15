@@ -15,7 +15,7 @@
    ## ♡𓂂  SECTION 03
     **𓏴𓏴**  i strictly use xe/xem or berry/berryself if I don't consider you close
      **𓏴𓏴**  im mlm, ftm, do not use fem terms on me.
-      **𓏴𓏴**  iam diagnosed sys, dyslexia, and schizophrenic. and don't ping me in discord nor cover my skin unless oomf
+      **𓏴𓏴**  iam diagnosed DID sys, dyslexia, and schizophrenic. and don't ping me in discord nor cover my skin unless oomf
 ![](https://files.catbox.moe/q31oci.jpg)
       
       Random images cus i can
@@ -23,4 +23,4 @@
 ![](https://files.catbox.moe/x1rqa9.png)
 ![](https://files.catbox.moe/lj75is.webp)
 ![](https://files.catbox.moe/jaztg2.jpg)
-SPROUTLINGS !!!!£;£#;
+**SPROUTLINGS !!!! HES SUCH A CUTIE**
