@@ -5,12 +5,12 @@
 ![](https://files.catbox.moe/dwstnt.jpg)
 ## ♡𓂂  SECTION 01
  **𓏴𓏴**  im a sprout fictkin-yume-monoshipper! 
-  **𓏴𓏴**  other yumes/fictkin please dni for my own personal comfort! dttm about any sprout *romantic* ships other than 🐚🍓 and 🍓x🍓 ( me :3 x sprout )
+  **𓏴𓏴**  other yumes/fictkin please dni for my own personal comfort! dttm about any sprout *romantic* ships other than 🐚🍓 and 🍓x🍓 or 🐺x🍓
 
   **MIRRORSHIPPING IS BANNED IN DISCORD IM CRYING**
 
   ## ♡𓂂  SECTION 02
-   **𓏴𓏴**  links, wip as i wish to remake them to be fully sprout themed
+   **𓏴𓏴**  link, hi just check them at my profile since im struggling making my new rentry
 
    ## ♡𓂂  SECTION 03
     **𓏴𓏴**  i strictly use xe/xem or berry/berryself if I don't consider you close
