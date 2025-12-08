@@ -5,7 +5,7 @@
 ![](https://files.catbox.moe/dwstnt.jpg)
 ## ♡𓂂  SECTION 01
  **𓏴𓏴**  im a sprout fictkin-yume-monoshipper! 
-  **𓏴𓏴**  other yumes/fictkin please dni for my own personal comfort! dttm about any sprout *romantic* ships other than 🐚🍓 and 🍓x🍓 or 🐺x🍓
+  **𓏴𓏴**  other yumes/fictkin please dni for my own personal comfort! just following me is fine. dttm about any sprout *romantic* ships other than 🐚🍓 and 🍓x🍓 or 🐺x🍓
 
   **MIRRORSHIPPING IS BANNED IN DISCORD IM CRYING**
 
