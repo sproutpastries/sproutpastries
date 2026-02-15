@@ -4,5 +4,6 @@
 ![](https://files.catbox.moe/kij2cu.png)
 
 。   ੭୧   c+h freely     ❶    𓏼    sys-***fictio***n~~kin~~
-       (  I rarely.. int first pls bmf )
+
+[**BOUNDARIES**](https://rentry.co/FifthSoda) dni & byi wip
     
