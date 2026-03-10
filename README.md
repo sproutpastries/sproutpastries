@@ -4,3 +4,5 @@
 
 IM totally not finishing them bruh.. well anyways,, ask perm to take insp pleaseea
     
+
+im a sys ok goodbye
